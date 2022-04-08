@@ -1,5 +1,6 @@
 # Ziyang Liu
-  ! [uw emblem](/uw_emblem.png)
+  ![uw emblem](/uw_emblem.png)
+
 zliu96@uw.edu
 
 Tel: (206) 790-4226

@@ -1,8 +1,9 @@
 # Ziyang Liu
-
+  ! [uw emblem](/uw_emblem.png)
 zliu96@uw.edu
 
 Tel: (206) 790-4226
+> To comply with assignment requirement
 
 # Research interest
 
